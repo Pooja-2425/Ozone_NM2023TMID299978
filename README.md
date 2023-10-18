@@ -1,2 +1,2 @@
 # Ozone_NM2023TMID299978
-# https://photos.app.goo.gl/6ax41DGEMjS7mx2D7
+# https://drive.google.com/file/d/1bosVideMoUc9DRQAW76G2PUa_YyNsjlQ/view?usp=drivesdk
